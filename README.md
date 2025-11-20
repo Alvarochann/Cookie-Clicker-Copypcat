@@ -1,1 +1,1 @@
-"# Cookie-Clicker-Copypcat" 
+"#Cookie-Clicker-Copypcat" 
